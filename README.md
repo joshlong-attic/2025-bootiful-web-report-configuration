@@ -1,0 +1,1 @@
+# 2025-bootiful-web-report-configuration
